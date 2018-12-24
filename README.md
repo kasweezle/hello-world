@@ -1,2 +1,2 @@
 # hello-world
-Not another repository
+no thx, i am a capitalist.
